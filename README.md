@@ -1,3 +1,6 @@
+MAT211 A Mathematical Approach to the Spread of Rumours on Social Media-
+https://www.canva.com/design/DAGYfme7uqU/8s6FP1oynSAVYk5wWi5i5g/view?utm_content=DAGYfme7uqU&utm_campaign=designshare&utm_medium=link&utm_source=editor
+
 CSE212 - Graph Isomorphism
 https://www.canva.com/design/DAGX2tkleVE/IiKzlcUdqR8bf565HOKfZw/view?utm_content=DAGX2tkleVE&utm_campaign=designshare&utm_medium=link&utm_source=editor
 
