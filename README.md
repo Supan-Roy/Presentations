@@ -1,3 +1,7 @@
+Priority List-
+https://www.canva.com/design/DAGY_5IwToo/nRkr2vK-f1KI1FrzfgOtPg/view?utm_content=DAGY_5IwToo&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h74f6f4be44
+
+
 MAT211 A Mathematical Approach to the Spread of Rumours on Social Media-
 https://www.canva.com/design/DAGYfme7uqU/8s6FP1oynSAVYk5wWi5i5g/view?utm_content=DAGYfme7uqU&utm_campaign=designshare&utm_medium=link&utm_source=editor
 
